@@ -34,4 +34,4 @@ Education form: Full-time
 
 **ENGLISH LEVEL:**
 
-I started learning English at school. Then I continued to study language at the university. I practiced speaking English on language exchange sites. Now I try to study all the sources in the original.
+I started learning English at school. Then I continued to study language at the university. I practiced speaking English on language exchange sites. Now I try to study all the sources in the original language.
